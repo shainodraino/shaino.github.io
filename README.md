@@ -1,1 +1,0 @@
-# shaino.github.io
